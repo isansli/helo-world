@@ -1,2 +1,3 @@
 # helo-world
 birinci repozitorimiz hayırlı olsun
+Allah'ın izniyle bu projeyi alnımızın akıyla en kısa zamanda tamamlarız inşallah...
